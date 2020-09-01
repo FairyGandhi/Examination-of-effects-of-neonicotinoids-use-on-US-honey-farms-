@@ -1,1 +1,1 @@
-# Examination-of-effects-of-neonicotinoids-use-on-US-honey-farms-
+# Examination of effects of neonicotinoids use on US honey farms
